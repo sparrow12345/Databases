@@ -1,1 +1,0 @@
-ksm hala aldakkak
